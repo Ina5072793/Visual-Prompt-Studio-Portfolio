@@ -1,1 +1,2 @@
-
+Create a photorealistic glazed porcelain sculpture inspired by a Yellow Dragon Fruit. Two organic porcelain forms are displayed on a clean white museum pedestal inside a clear transparent vitrine: one large pod standing upright, split open with a hollow, darker interior, and one smaller detached segment lying beside it. The outer surface has natural fruit like texture, ridges, and subtle seams, with muted warm yellow tones. Soft museum lighting creates gentle shadows inside the cavity and subtle highlights on the glossy glaze. Background is a pristine white gallery wall. 
+Note: handwritten reflection image is included.
